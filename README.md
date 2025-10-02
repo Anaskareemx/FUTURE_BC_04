@@ -40,7 +40,7 @@ My favorite was **Gradient Network** because:
 ---
 
 ## 🔗 Links  
-- **GitHub Repo:** [https://github.com/Anaskareemx/FUTURE_BC_0]  
-- **LinkedIn Post:** [Your LinkedIn Post Link]  
+- **GitHub Repo:** [https://github.com/Anaskareemx/FUTURE_BC_04]  
+- **LinkedIn Post:** [https://www.linkedin.com/posts/anaskareemx_futureinterns-blockchain-crypto-activity-7379462563824312320-eExy?utm_source=share&utm_medium=member_desktop&rcm=ACoAAF4QJ74BYcYZNEuGk_joXWWY4Wz-ansWdbs] 
 
 ---
